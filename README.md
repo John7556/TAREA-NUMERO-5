@@ -74,6 +74,7 @@ Capitulo 9
 27
 
 29
+
 ![image](https://user-images.githubusercontent.com/93899720/148690648-1e30edb9-cb22-4738-a064-d444ec972c1e.png)
 ![image](https://user-images.githubusercontent.com/93899720/148690657-3754a9ec-f4d1-49dc-ae2b-38f421c0b997.png)
 
