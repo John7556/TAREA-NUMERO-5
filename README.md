@@ -29,33 +29,53 @@ Capitulo 9
 
 1
 
+![image](https://user-images.githubusercontent.com/93899720/148690301-9ced2253-cb30-43f5-88b1-9bd163070363.png)
+
 3
 
 5
+
+![image](https://user-images.githubusercontent.com/93899720/148690443-a76be63a-b169-40f2-89f0-3267221a176d.png)
+
+![image](https://user-images.githubusercontent.com/93899720/148690466-fa7ec1cb-97fc-4790-9e67-8e62f46cadd6.png)
 
 7
 
 9
 
+![image](https://user-images.githubusercontent.com/93899720/148690484-320230fc-5275-4dab-8190-d0b90055a26b.png)
+
 11
 
 13
+
+![image](https://user-images.githubusercontent.com/93899720/148690508-f82add39-df90-4dde-b34d-871f6c31be6e.png)
+![image](https://user-images.githubusercontent.com/93899720/148690526-b923acb7-0663-4c2e-b343-f62f1cb92d95.png)
 
 15
 
 17
 
+![image](https://user-images.githubusercontent.com/93899720/148690549-0ff72597-d593-474a-803c-596632d503a0.png)
+
 19
 
+
 21
+
+![image](https://user-images.githubusercontent.com/93899720/148690586-cb687c37-ce48-4fa9-b173-8600e4afce6a.png)
 
 23
 
 25
 
+![image](https://user-images.githubusercontent.com/93899720/148690613-8a14bdf8-bf50-4d1e-8070-593689d46e66.png)
+
 27
 
 29
+![image](https://user-images.githubusercontent.com/93899720/148690648-1e30edb9-cb22-4738-a064-d444ec972c1e.png)
+![image](https://user-images.githubusercontent.com/93899720/148690657-3754a9ec-f4d1-49dc-ae2b-38f421c0b997.png)
 
 31
 
@@ -63,29 +83,43 @@ Capitulo 10
 
 1
 
+![image](https://user-images.githubusercontent.com/93899720/148690679-ebb387cb-4cf9-46f8-812f-10fe82f26636.png)
+
 3
 
 5
+
+![image](https://user-images.githubusercontent.com/93899720/148690700-70d10ca0-0ab7-4048-a2a8-959bee805caa.png)
 
 7
 
 9
 
+![image](https://user-images.githubusercontent.com/93899720/148690713-122ffdc0-ea80-4091-954d-98cc8533c683.png)
+
 11
 
 13
+
+![image](https://user-images.githubusercontent.com/93899720/148690731-b587eb0e-a3f7-4386-9a27-023c69f3f649.png)
 
 15
 
 17
 
+![image](https://user-images.githubusercontent.com/93899720/148690749-f9ce37b3-a048-48ab-abd4-f5a86d9fe51a.png)
+
 19
 
 21
 
+![image](https://user-images.githubusercontent.com/93899720/148690770-ae7a63c5-7cbe-4c84-ac86-cf6370bf6468.png)
+
 23
 
 25
+
+![image](https://user-images.githubusercontent.com/93899720/148690788-d2bed2ab-826f-4f06-989a-33a066fb94b2.png)
 
 27
 
