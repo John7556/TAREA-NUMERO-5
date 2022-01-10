@@ -33,6 +33,9 @@ Capitulo 9
 
 3
 
+![image](https://user-images.githubusercontent.com/93899720/148855332-594de332-c6fa-4d2a-9eef-3bb924a04c7c.png)
+
+
 5
 
 ![image](https://user-images.githubusercontent.com/93899720/148690443-a76be63a-b169-40f2-89f0-3267221a176d.png)
