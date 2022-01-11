@@ -44,11 +44,18 @@ Capitulo 9
 
 7
 
+![image](https://user-images.githubusercontent.com/93899720/148860910-1320d7fd-2620-4789-9d4f-5c86618b053f.png)
+![image](https://user-images.githubusercontent.com/93899720/148860921-11c209be-1fac-4449-a03b-23810527baf8.png)
+
+
 9
 
 ![image](https://user-images.githubusercontent.com/93899720/148690484-320230fc-5275-4dab-8190-d0b90055a26b.png)
 
 11
+
+![image](https://user-images.githubusercontent.com/93899720/148860944-8a8af484-5305-4469-9214-2887d153859e.png)
+
 
 13
 
