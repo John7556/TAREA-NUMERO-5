@@ -171,17 +171,10 @@ Capitulo 10
 
 ![image](https://user-images.githubusercontent.com/93899720/148690788-d2bed2ab-826f-4f06-989a-33a066fb94b2.png)
 
-27
-
-
-
-29
-
-31
-
 
 4. VIDEO
 
+https://www.youtube.com/watch?v=rBgp885DDik
 
 5. CONCLUSIONES
 
