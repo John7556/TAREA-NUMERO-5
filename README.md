@@ -120,11 +120,17 @@ Capitulo 10
 
 3
 
+![image](https://user-images.githubusercontent.com/93899720/149242556-b6b3c548-6bca-43dc-a7a1-0ec84b093d86.png)
+
+
 5
 
 ![image](https://user-images.githubusercontent.com/93899720/148690700-70d10ca0-0ab7-4048-a2a8-959bee805caa.png)
 
 7
+
+![image](https://user-images.githubusercontent.com/93899720/149242584-90af2965-aab1-4be9-82ab-6f90fd503f7f.png)
+
 
 9
 
@@ -132,17 +138,26 @@ Capitulo 10
 
 11
 
+![image](https://user-images.githubusercontent.com/93899720/149242599-3208e915-b31f-4dd8-8d6a-2983dca37b7e.png)
+
+
 13
 
 ![image](https://user-images.githubusercontent.com/93899720/148690731-b587eb0e-a3f7-4386-9a27-023c69f3f649.png)
 
 15
 
+![image](https://user-images.githubusercontent.com/93899720/149242622-b9081596-a2b3-419e-a206-8bc3cc356a8e.png)
+
+
 17
 
 ![image](https://user-images.githubusercontent.com/93899720/148690749-f9ce37b3-a048-48ab-abd4-f5a86d9fe51a.png)
 
 19
+
+![image](https://user-images.githubusercontent.com/93899720/149242639-cafc3d43-5d95-450c-a53a-2d7c1f838615.png)
+
 
 21
 
@@ -155,6 +170,9 @@ Capitulo 10
 ![image](https://user-images.githubusercontent.com/93899720/148690788-d2bed2ab-826f-4f06-989a-33a066fb94b2.png)
 
 27
+
+![image](https://user-images.githubusercontent.com/93899720/149242657-febf0fb2-913a-4f10-915b-8fb77cb8cc8e.png)
+
 
 29
 
