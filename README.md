@@ -165,13 +165,14 @@ Capitulo 10
 
 23
 
+![image](https://user-images.githubusercontent.com/93899720/149242657-febf0fb2-913a-4f10-915b-8fb77cb8cc8e.png)
+
 25
 
 ![image](https://user-images.githubusercontent.com/93899720/148690788-d2bed2ab-826f-4f06-989a-33a066fb94b2.png)
 
 27
 
-![image](https://user-images.githubusercontent.com/93899720/149242657-febf0fb2-913a-4f10-915b-8fb77cb8cc8e.png)
 
 
 29
